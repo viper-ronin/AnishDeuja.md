@@ -1,6 +1,6 @@
 Anish Deuja
 Reviewer: 
-Instructions for creating a Peanut Butter and Jelly Sandwich
+
 1. Gather the necessary ingredients:
    - Bread (2 slices)
    - Peanut butter
