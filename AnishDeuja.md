@@ -4,7 +4,7 @@ Reviewer:
 1. Gather the necessary ingredients:
    - Bread (2 slices)
    - Peanut butter
-   - Jelly or jam
+   - Jelly
    - Butter knife or spreading utensil
 
 2. Place the two slices of bread on a clean surface.
