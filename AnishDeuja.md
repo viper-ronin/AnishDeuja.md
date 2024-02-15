@@ -17,6 +17,6 @@ Reviewer:
 
 6. Press down gently to ensure the sandwich sticks together.
 
-7. Then you can cut the sandwich diagonally or straight down the middle for easier handling.
+7. Then you can cut the sandwich diagonally or straight down the middle.
 
 8. Your Peanut Butter and Jelly Sandwich is ready to enjoy!
