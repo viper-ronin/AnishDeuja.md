@@ -13,7 +13,7 @@ Reviewer:
 
 4. Using the same knife, spread jelly evenly on the other slice of bread.
 
-5. Carefully place the two slices of bread together, with the peanut butter and jelly sides facing each other.
+5. Place the two slices of bread together, with the peanut butter and jelly sides facing each other.
 
 6. Press down gently to ensure the sandwich sticks together.
 
